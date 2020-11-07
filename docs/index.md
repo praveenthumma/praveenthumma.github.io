@@ -1,2 +1,2 @@
 # Praveen Thumma
-[Hindustani Classical Music](https://praveenthumma.com/music/)
+[Hindustani Classical Music](https://praveenthumma.com/music)
